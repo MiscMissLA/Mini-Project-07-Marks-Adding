@@ -1,2 +1,2 @@
-# Mini-Project-07-Marks-Adding
-Mini Project-07: Marks Adding
+[Mini Project - Marks Adding.pdf](https://github.com/user-attachments/files/20746824/Mini.Project.-.Marks.Adding.pdf)
+
